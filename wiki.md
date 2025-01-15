@@ -24,7 +24,7 @@ Some of the people discussed in the documentary include:
 ## Robert Owen's socialism experiment
 Robert Owen was a founding socialist who purchased a town in Indiana, and founded an experimental community called New Harmony. Then he went to congress to present his idea. He then welcomed 800 people to come live in  new harmony and participate in carrying out his idea. The people that were attracted to come live there were progressive intellectuals. In new harmony, there was free Education for all ages, advocation for women’s equal rights, and emphasis on scientific research. Through doing these things is how he believed he could mold the character of the people in the society from birth and create a perfect society. One of the main points was to get rid of Private property. This was the basis for eliminating Individual wealth, one of the main parts of socialism. It ended up being very inefficient and in the end dissolved. But it planted the major socialist ideas into the world.
 
-![images](https://images.fineartamerica.com/images-medium-large/1-robert-owen-1771-1858-granger.jpg){ width=25% }
+![images](https://spartacus-educational.com/00owen2.jpg?ezimgfmt=rs:400x511/rscb1/ngcb1/notWebP)
 Robert Owen
 
 ##  Marx's most significant work
